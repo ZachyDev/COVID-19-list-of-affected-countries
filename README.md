@@ -1,0 +1,1 @@
+COVID-19 list of affected countries
